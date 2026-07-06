@@ -1,4 +1,4 @@
-# 
+# Personalizado YNAB preajustes para Mac OS | VIP YNAB preajustes para PC Windows. Con importación de documentos y reembolsos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
